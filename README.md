@@ -1,2 +1,4 @@
-# D_vallage
-About vallage life and silly moments
+# 在 huber heights 的日子
+
+这里有我学习英文的记录，也有学习专业知识的脚步
+希望通过点滴记录每天的成长和收获
